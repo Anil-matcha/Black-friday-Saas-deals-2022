@@ -8,7 +8,7 @@ Video hosting and marketing made easy for creators and brands. Vadoo Lifetime de
 All-in-one community platform for creators and brands. UUKI lifetime deal at 50% off on recurring plan -"BLACKFRIDAY30" to get 30% off
 
 ### [BoldDesk](https://www.bolddesk.com/black-friday)
-BoldDesk is a cloud-based, modern help desk ticketing system and knowledge base software for serving a wide range of customer support activities. Save up to 40% on an unlimited agents plan at $75 Validity: November 1–December 3, 2022
+BoldDesk is a cloud-based, modern help desk ticketing system and knowledge base software for serving a wide range of customer support activities. Save up to 40% on an unlimited agents plan at $75. Validity: November 1–December 3, 2022
 
 ### Yay commerce
 YayCommerce Plugins - YayMail, YaySwatches, YayCurrency, YayPricing, YayExtra, YaySMTP
