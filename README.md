@@ -4,8 +4,12 @@ Featured Saas deals at amazing discounts for Blackfriday and Cyber-Monday
 ### [Vadoo](https://www.vadoo.tv/blackfriday-lifetime-deal-vadoo)
 Video hosting and marketing made easy for creators and brands. Vadoo Lifetime deal at 50% off of the recurring plan -"BLACKFRIDAY30" to get 30% off
 
+[Vimeo alternative](https://www.vadoo.tv/vimeo-alternative)
+
 ### [UUKI](https://www.uuki.live/lifetimedeal-pricing)
 All-in-one community platform for creators and brands. UUKI lifetime deal at 50% off on recurring plan -"BLACKFRIDAY30" to get 30% off
+
+[UUKI alternative](https://www.uuki.live/tribe-alternative)
 
 ### Yay commerce
 YayCommerce Plugins - YayMail, YaySwatches, YayCurrency, YayPricing, YayExtra, YaySMTP
